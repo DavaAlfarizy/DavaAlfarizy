@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **dapunnn@gmail.com**
 
-- ⚡ Fun fact **just kid from Bogor**
+- ⚡ **just kid from Bogor**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
